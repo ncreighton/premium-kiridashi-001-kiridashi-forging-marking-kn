@@ -1,0 +1,2 @@
+# premium-kiridashi-001-kiridashi-forging-marking-kn
+Stop losing track of your kiridashi forging projects, steel stock, and marking knife designs in scattered notes and spreadsheets. This Notion template consolidates every step of your craft into one unified hub.  The Kiridashi Forging &amp; Marking Knife Craft Hub solves the chaos of managing multiple builds, material inventories, and design iterations.
